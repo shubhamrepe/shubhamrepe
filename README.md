@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1N6UzhhQdCrkSsy1XbxO-zOH2G__tXJ0e/view?usp=sharing](https://drive.google.com/file/d/1N6UzhhQdCrkSsy1XbxO-zOH2G__tXJ0e/view?usp=sharing)
 
-- ⚡ Fun fact **I am funny😂**
+- ⚡ +91 8390571828**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
